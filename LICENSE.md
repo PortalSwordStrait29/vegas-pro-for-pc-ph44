@@ -1,4 +1,4 @@
-# 
+# Enhance Vegas Pro for PC | Vegas Pro for Windows with custom Vegas Pro for PC | Vegas Pro for Windows Effect | video-stabilization + export-presets, the #1 effect. Includes
 
 
 
